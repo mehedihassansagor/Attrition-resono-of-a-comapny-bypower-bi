@@ -1,0 +1,1 @@
+# Attrition-resono-of-a-comapny-bypower-bi
